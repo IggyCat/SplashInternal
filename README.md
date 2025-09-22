@@ -1,1 +1,1 @@
-# SplashInternal
+Giving this out as a last fuck you to spash couse patience aint a word in yall vocabulary the beef is real here yall https://limewire.com/d/67a28#a8IqLSw15U iggycats if yall want me to post your stuff peace ✌️✌️✌️
